@@ -1,1 +1,1 @@
-# glb_models
+# glb_models of mechanical components. free downloads. part are things like gears , shafts and bearing housings. Engine parts feature numerous times. for a more extensive collection and an easy assembly method see https://cad-boxx.com 
